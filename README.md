@@ -8,4 +8,6 @@ My background is in computational finance, econometrics, economic development, l
 - 📫 How to reach me: r.safiry@columbia.edu
 - 💬 Ask me about: Stonks 📈, John Adams, music 🎷...
 - 💻 Website: [http://columbia.edu/~rws2162](http://columbia.edu/~rws2162)
+- 📍 I am currently: bouncing between Boston, San Francisco, New York, and Lyon
 - ⚡ Fun fact: I speak French 🇫🇷 and love to bike 🚴 ...
+  
